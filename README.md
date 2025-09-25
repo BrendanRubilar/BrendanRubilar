@@ -1,8 +1,7 @@
 
 ## Estudiante ingeniería civil informatica | Universidad de Concepción
 
-
-🥑 Eat 💻 Code 💪🏽 Train ♻️ Repeat
+Espero titularme pronto y farmear mangos, nada más que agregar.
 
 <div align="center" style="background:#414a50; padding: 25px 0;">
      <a href="[https://www.linkedin.com/in/ivelin-iliev-16272baa/](https://www.linkedin.com/in/brendan-rubilar-vivanco-697b1123a)">
