@@ -1,5 +1,5 @@
 
-## Estudiante ingeniería civil informatica | Universidad de Concepción
+## Estudiante ingeniería civil informática | Universidad de Concepción
 
 Espero titularme pronto y farmear mangos, nada más que agregar.
 
