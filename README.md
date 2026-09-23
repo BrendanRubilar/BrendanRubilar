@@ -1,5 +1,5 @@
 
-## Estudiante ingeniería civil informática | Universidad de Concepción
+## Ingeniero civil informático | Universidad de Concepción
 
 <div align="center" style="background:#414a50; padding: 25px 0;">
     <a href="https://www.linkedin.com/in/brendan-rubilar-vivanco-697b1123a" target="_blank" rel="noopener noreferrer">
